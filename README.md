@@ -1,1 +1,1 @@
-# Ph_creciente_planta_soledad
+# Ph_creciente_planta_soledad<img width="1439" alt="Captura de Pantalla 2023-02-03 a la(s) 3 32 08 p m" src="https://user-images.githubusercontent.com/86754797/216705283-af6dea4e-490e-4d91-9e66-fa3f4051dc22.png">
